@@ -1,1 +1,1 @@
-Linu
+Linux
